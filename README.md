@@ -1,0 +1,1 @@
+# potencjalometr.github.io
